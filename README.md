@@ -1,1 +1,1 @@
-# Article_Attachment_2023_07
+# Microbiome analysis reveals the symbiotic relationship between Tricholoma bakamatsutake and Quercus mongolic
